@@ -2,9 +2,9 @@
 
 ## Intro
 
-Someone posted recently wondering about Alexithymia. I'm not any kind
-of mental health professional, but I have been doing therapy a lot for
-the last few years. In particular, I have struggled with a tendency to
+Someone posted recently about Alexithymia. I'm not any kind of mental
+health professional, but I have been doing therapy a lot for the last
+few years. In particular, I have struggled with a tendency to
 dissociate from myself, which for me ends up feeling a lot like the
 description of Alexithymia.  My suggestion to that poster was to find
 a therapist to work on this with. But not everyone has the resources
@@ -221,3 +221,18 @@ the developers of the app (info about how that works is
 Meditation does require practice though. Even just ten minutes a day
 can be extremely impactful, so don't think it has to be a gigantic
 commitment of time.
+
+
+## Final Thoughts
+
+So, the ideas exercises contained in this document are really just a
+place to start. Take these as inspiration and a basic orientation to
+what dissociation is and how to manage it. But do your own research
+online, read books, talk to people about your experiences, and seek
+out the mental health resources in your community. Cast a wide net,
+and see what comes back. Also, a lot of therapists will use sliding
+pay scales for people without insurance or who otherwise could not
+afford therapy. There are also support groups for many specific
+subjects, and there are co-counseling groups which are like
+general-purpose support groups and places for people to support each
+other.
