@@ -138,15 +138,15 @@ less dissociated, calmer, or less anxious. The goal is to ease
 whatever discomfort caused you to do the scan in the first place.
 
 
-### EMDR
+### Eye movement desensitization and reprocessing (EMDR)
 
-EMDR at it's core is really just moving your eyes from side to side. I
-know this sounds absurd, but please just try it. It can be helpful to
-have concrete points to focus on while doing this, so just pick two
-objects in your field of vision that you can focus your eyes on
-without moving your head. Then, look at the one on the left for the
+At its core EMDR is really just moving your eyes from side to
+side. I know this sounds absurd, but please just try it. It can be
+helpful to have concrete points to focus on while doing this, so just
+pick two objects in your field of vision that you can focus your eyes
+on without moving your head. Then, look at the one on the left for the
 space of a breath, then look at the one on the right for the space of
-a breath, repeat ad nauseam or until you feel better.
+a breath. Repeat _ad nauseum_ or until you feel better.
 
 
 ### Walking/Exercise
@@ -156,8 +156,9 @@ great way to stay connected to your body. It's also good for your
 mental state.  I go on a walk every day to get me a) out of the house
 at least once, and b) at least a little bit of exercise.
 
-Walking can also be combined with the side-to-side scan or EMDR eye
-movements.  In fact, I find EMDR to be most helpful when I'm walking.
+Walking can also be combined with the Side-to-Side scan or EMDR eye
+movements.  In fact, I find that doing these exercises is even more
+effective when I practice them while I'm walking.
 
 
 ### Getting a Different Perspective
