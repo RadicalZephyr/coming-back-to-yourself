@@ -109,13 +109,20 @@ Turn your head to the left as far as is comfortable, and then slowly
 focus your eyes on specific objects you can see in your visual field
 and internally name each object you focus on before moving to the
 next. The important thing here is not to move your eyes and head too
-quickly, bouncing from one object to the next.  However, you also
-don't want to get "stuck" on one object or get lost in thought in the
-middle of the head turn. Make sure to continue breathing while doing
-this scan. Continue this scan until your head has turned as far as it
-is comfortable for you to turn to the right. Keep doing this until you
-feel more grounded, less dissociated, calmer, less anxious or whatever
-caused you do the scan in the first place.
+quickly. You don't want to bounce from one object to the next without
+really seeing them.  However, you also don't want to get "stuck" on
+one object or get lost in thought in the middle of the head turn.
+
+Make sure to continue breathing while doing this scan.  The first time
+I did this exercise I was focusing so hard on the visual task that I
+actually held my breath the whole time!
+
+Continue this scan to the left until you reach the end of your range
+of motion, and then reverse direction. Doing the same object by object
+scan, rotate your head all the way to the right, as far as is
+comfortable. Keep going back and forth until you feel more grounded,
+less dissociated, calmer, less anxious or whatever caused you do the
+scan in the first place.
 
 
 ### EMDR
