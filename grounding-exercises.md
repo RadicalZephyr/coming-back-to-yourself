@@ -29,13 +29,13 @@ term state of being.  If you have been in a profound and continuous
 state of dissociation for a long time then this pattern is not going
 to just change overnight. It will take time, patience and persistence
 to make these kinds of changes. The more support you can get from
-other people, whether it's friends or family, a support group, or a
-therapist, having people to support you is going to be critical. It
-seems pretty likely that if you are in a constant or semi-constant
-state of dissociation there are probably a __LOT__ of repressed
-emotions hiding underneath it, and one of the things that you may
-notice as you begin to reintegrate is that those emotions will start
-to come out, whether you want them to or not. So try to be
+other people the better. Whether it's friends or family, a support
+group, or a therapist, having people to support you is going to be
+critical. It seems pretty likely that if you are in a constant or
+semi-constant state of dissociation there are probably a __LOT__ of
+repressed emotions hiding underneath it, and one of the things that
+you may notice as you begin to reintegrate is that those emotions will
+start to come out, whether you want them to or not. So try to be
 prepared. And also, take it slow.
 
 
