@@ -1,28 +1,41 @@
 # Grounding Your Self
 
-
 ## Intro
 
-These may sound silly and far too simple, but I promise, these
-techniques did actually work for me.  One of the most important things
-about this is that you need to give yourself time. Try not to expect
-that doing these exercises once will "cure" you of dissociation,
-because frankly it won't.
+Someone posted recently wondering about Alexithymia. I'm not any kind
+of mental health professional, but I have been doing therapy a lot for
+the last few years. In particular, I have struggled with a tendency to
+dissociate from myself, which for me ends up feeling a lot like the
+description of Alexithymia.  My suggestion to that poster was to find
+a therapist to work on this with. But not everyone has the resources
+to do that, so I decided to write this short article on what I've
+learned about how to recognize when you are in a state of dissociation
+and how to reintegrate your mind and body in order to leave that
+state.
+
+Some of these exercises may sound silly or "too simple," but I
+promise, they did - and still do - actually work for me.  One of the
+most important things to keep in mind about this process is that you
+need to give yourself time. Try not to expect that doing these
+exercises once will "cure" you of dissociation, because frankly it
+won't.
 
 
 __THERE ARE NO SILVER BULLETS.__
 
-It sounds like you experience a pretty profound and continuous state
-of dissociation and that it's been going on for a long time.  Patterns
-like that don't just change overnight. It will take time, patience and
-persistence to make these kinds of changes. The more support you can
-get from other people, whether it's friends or family, a support
-group, or a therapist, having people to support you is going to be
-critical. It seems pretty likely that if you are in a constant or
-semi-constant state of dissociation there are probably a __LOT__ of
-repressed emotions hiding underneath it, and one of the things that
-you may notice as you begin to reintegrate is that those emotions will
-start to come out, whether you want them to or not. So try to be
+
+From my own experience, I think dissociation tends to become a long
+term state of being.  If you have been in a profound and continuous
+state of dissociation for a long time then this pattern is not going
+to just change overnight. It will take time, patience and persistence
+to make these kinds of changes. The more support you can get from
+other people, whether it's friends or family, a support group, or a
+therapist, having people to support you is going to be critical. It
+seems pretty likely that if you are in a constant or semi-constant
+state of dissociation there are probably a __LOT__ of repressed
+emotions hiding underneath it, and one of the things that you may
+notice as you begin to reintegrate is that those emotions will start
+to come out, whether you want them to or not. So try to be
 prepared. And also, take it slow.
 
 
