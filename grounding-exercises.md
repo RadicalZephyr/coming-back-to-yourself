@@ -17,13 +17,13 @@ of dissociation and that it's been going on for a long time.  Patterns
 like that don't just change overnight. It will take time, patience and
 persistence to make these kinds of changes. The more support you can
 get from other people, whether it's friends or family, a support
-group, or a therapist, having people to support is going to be
+group, or a therapist, having people to support you is going to be
 critical. It seems pretty likely that if you are in a constant or
 semi-constant state of dissociation there are probably a __LOT__ of
 repressed emotions hiding underneath it, and one of the things that
-will start happening as you start to reintegrate is that those
-emotions will start to come out, whether you want them to or not. So
-try to be prepared. And also, take it slow.
+you may notice as you begin to reintegrate is that those emotions will
+start to come out, whether you want them to or not. So try to be
+prepared. And also, take it slow.
 
 
 ## Coming Back
@@ -31,12 +31,12 @@ try to be prepared. And also, take it slow.
 ### What's the Difference
 
 First you need to learn to identify when you are feeling dissociated
-and what it feels like to _not_ be dissociated.  Dissociation can
-often manifests as people feeling like they are floating above or
-outside their body rather than inhabiting it, or a feeling of
-floatiness, or oven mild dizziness. I also will often notice that I
-cannot easily access the physical sensations that are happening in my
-body while I'm dissociated.
+and what it feels like to _not_ be dissociated.  Dissociation often
+manifests as a feeling of floating above or outside one's body rather
+than inhabiting it, or a feeling of floatiness, or even mild
+dizziness. I also often notice that I cannot easily access the
+physical sensations that are happening in my body while I'm
+dissociated.
 
 Learning to recognize _when_ you are dissociated is probably going to
 be more challenging without someone to interact with about it because
