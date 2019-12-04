@@ -72,8 +72,8 @@ dissociated from my own feelings.
 The flip side of recognizing dissociation is to be able to recognize
 what it feels like to be fully integrated. One of the best techniques
 that I know for this is to do a body-scan meditation.  A body-scan
-meditation is essentially just simply paying attention to the
-sensations you are feeling in every part of your body, one at a time.
+meditation is essentially just paying attention to the sensations you
+are feeling in every part of your body, one at a time.
 
 Focusing your attention on just the physical sensations in a specific
 part of your body, and then "scanning" that level of attention across
