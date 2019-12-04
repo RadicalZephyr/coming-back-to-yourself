@@ -208,17 +208,16 @@ around, and find ones that you like and that work for you.
 The UCLA meditations are simple and basic, but helpful. I used those
 for a long time before moving on to other things. The Waking Up app
 and 10% Happier are both good apps for providing a progression of
-meditation lessons to actually teach you how to meditate and more of
-the full range of what you can use it for and the many different ways
-there are to practice it.
+meditation lessons to actually teach you how to meditate. They also
+illustrate more of the full range of what you can use it for and the
+many different ways there are to practice it.
 
 Also, most of the content in the Waking Up
 app is behind a pay-wall, but if you truly cannot afford it you can
 get free access to the subscription for a year by writing an email to
 the developers of the app (info about how that works is
-[here](https://help.wakingup.com/article/54-how-much-does-the-waking-up-course-cost)
-).
+[here](https://help.wakingup.com/article/54-how-much-does-the-waking-up-course-cost)).
 
-You do have to practice it though.  Even practicing meditation for
-just ten minutes a day can be extremely impactful, so don't think it
-has to be a gigantic commitment of time.
+Meditation does require practice though. Even just ten minutes a day
+can be extremely impactful, so don't think it has to be a gigantic
+commitment of time.
