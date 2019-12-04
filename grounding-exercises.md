@@ -30,27 +30,28 @@ prepared. And also, take it slow.
 
 ### What's the Difference
 
-First you need to learn to identify when you are feeling dissociated
-and what it feels like to _not_ be dissociated.  Dissociation often
-manifests as a feeling of floating above or outside one's body rather
-than inhabiting it, or a feeling of floatiness, or even mild
-dizziness. I also often notice that I cannot easily access the
-physical sensations that are happening in my body while I'm
-dissociated.
+First you need to learn to identify when you are dissociated and what
+it feels like to _not_ be dissociated.  Dissociation often manifests
+as a feeling of floating above or outside one's body rather than
+inhabiting it, or a feeling of floatiness, or even mild dizziness. I
+also often notice that I cannot easily access the physical sensations
+that are happening in my body while I'm dissociated.
 
 Learning to recognize _when_ you are dissociated is probably going to
-be more challenging without someone to interact with about it because
+be more challenging without someone to interact with about it, because
 the very nature of being in a dissociated state means you are unlikely
 to notice it.  To counteract this, it's useful to try and develop a
 habit of periodically throughout the day checking in with yourself and
 asking "How am I feeling right now? Do I feel dissociated?" Then check
 for the specific physical sensations (or lack thereof) that you will
-begin to associate with feeling dissociated.
+begin to associate with being dissociated.
 
-If you have a good friend who's help you feel comfortable enlisting in
-this project, maybe have them read this, and tell them what you're
-struggling with and ask them to try and notice if your behavior
-changes suddenly and dramatically.
+If you have a good friend whose help you feel comfortable enlisting in
+this project, maybe have them read this, and tell them to watch for
+sudden changes in your behavior and when they do see that to gently
+inform you. This can then be a cue for you to check in with yourself
+about your current state of integration, and maybe do some exercises
+to ground yourself.
 
 Personally, I've found that most of my friends were aware of _when_ I
 was going into dissociative states, just not what they were. For me
