@@ -119,10 +119,10 @@ actually held my breath the whole time!
 
 Continue this scan to the left until you reach the end of your range
 of motion, and then reverse direction. Doing the same object by object
-scan, rotate your head all the way to the right, as far as is
+scan, now rotate your head all the way to the right as far as is
 comfortable. Keep going back and forth until you feel more grounded,
-less dissociated, calmer, less anxious or whatever caused you do the
-scan in the first place.
+less dissociated, calmer, or less anxious. The goal is to ease
+whatever discomfort caused you to do the scan in the first place.
 
 
 ### EMDR
