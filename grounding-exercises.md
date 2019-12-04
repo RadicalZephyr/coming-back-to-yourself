@@ -172,11 +172,19 @@ are my number one trigger for going into dissociative states.
 
 ### Socializing
 
-Social contact is great, and with the internet it's easier to find
-something to do with people than ever before. Even if you don't know
-anyone, or you feel nervous or anxious about socializing, do it
-anyway.  Running away from those fears or anxieties only makes them
-worse.
+This isn't particularly related to dissociation/integration, but
+getting regular social contact is a good idea in general. Even if you
+don't know anyone, or you feel nervous or anxious about socializing,
+do it anyway.  Running away from those fears or anxieties only makes
+them worse.
+
+
+Fortunately, with access to the internet it's easier to find something
+to do with people in real life than ever before. Check out Meetup.com
+for local events in your area, or pick-up a local newspaper with
+events.  We're social creatures, and when we stop actually being
+social it both feels bad and the skills for being social can
+atrophy.
 
 
 ### Meditation
