@@ -88,9 +88,9 @@ Center's site](https://www.uclahealth.org/marc/mindful-meditations).
 
 Basically, learning to recognize when you are dissociated or
 integrated is about learning more about yourself and how _you_
-function. Try not to be judgmental or cruel to yourself while
-exploring how you function.  Instead, try to cultivate simple
-curiosity, and a process of discovery.
+function. Try not to be judgmental or cruel to yourself. Instead, try
+to cultivate simple curiosity, and a process of discovery while you
+explore how you specifically work.
 
 
 ## Maintenance
@@ -105,15 +105,17 @@ simply calming anxiety or taking the edge off of any kind of upset.
 
 ### Side-to-side Scan
 
-Turn your head as far as it is comfortable for you to the left, and
-then slowly (at about 5 degree per second turn) slowly focus your eyes
-on specific objects you can see in your visual field.  I also find it
-helpful to mentally name each object I focus on.  Make sure to
-continue breathing while doing this scan. Continue this scan until
-your head has turned as far as it is comfortable for you to turn to
-the right. Keep doing this until you feel more grounded, less
-dissociated, calmer, less anxious or whatever caused you do the scan
-in the first place.
+Turn your head to the left as far as is comfortable, and then slowly
+focus your eyes on specific objects you can see in your visual field
+and internally name each object you focus on before moving to the
+next. The important thing here is not to move your eyes and head too
+quickly, bouncing from one object to the next.  However, you also
+don't want to get "stuck" on one object or get lost in thought in the
+middle of the head turn. Make sure to continue breathing while doing
+this scan. Continue this scan until your head has turned as far as it
+is comfortable for you to turn to the right. Keep doing this until you
+feel more grounded, less dissociated, calmer, less anxious or whatever
+caused you do the scan in the first place.
 
 
 ### EMDR
