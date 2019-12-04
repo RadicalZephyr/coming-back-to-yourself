@@ -30,21 +30,22 @@ prepared. And also, take it slow.
 
 ### What's the Difference
 
-First you need to learn to identify when you are dissociated and what
-it feels like to _not_ be dissociated.  Dissociation can manifest as a
-feeling of floating above or outside one's body rather than inhabiting
-it, or a feeling of floatiness, or even mild dizziness. However,
-everyone is a bit different, and you may have a different experience
-of learning to recognize _your_ dissociation. Personally, I most
-readily notice my dissociation by checking on the physical sensations
-in my body, and noticing the _lack_ of sensations that I know I should
-be feeling, like sitting on a chair for instance.
+In order to change your patterns you first need to identify when
+they're happening. So before you can first you need to learn to
+identify when you are dissociated and what it feels like to _not_ be
+dissociated.  Dissociation can manifest as a feeling of floating above
+or outside one's body rather than inhabiting it, or a feeling of
+floatiness, or even mild dizziness. However, everyone is a bit
+different, and you may have a different experience of learning to
+recognize _your_ dissociation. Personally, I most readily notice my
+dissociation by checking on the physical sensations in my body, and
+noticing the _lack_ of sensations that I know I should be feeling,
+like sitting on a chair for instance.
 
-Learning to recognize _when_ you are dissociated is probably going to
-be more challenging without someone to interact with about it, because
-the very nature of being in a dissociated state means you are unlikely
-to notice it.  To counteract this, it's useful to try and develop a
-habit of checking in with yourself periodically throughout the day and
+Learning to recognize _when_ you are dissociated is key. But the very
+nature of being in a dissociated state means you are unlikely to
+notice it.  To counteract this, it's useful to try and develop a habit
+of checking in with yourself periodically throughout the day and
 asking "How am I feeling right now? Do I feel dissociated?" Then check
 for the specific physical sensations (or lack thereof) that you will
 begin to associate with being dissociated.
@@ -57,12 +58,13 @@ about your current state of integration, and maybe do some exercises
 to ground yourself.
 
 Personally, I've found that most of my friends were aware of _when_ I
-was going into dissociative states, just not what they were. For me
-particularly, I tend to dissociate in emotionally charged situations,
-particularly intense conversations. And when I do dissociate in these
-situations I go from being tactfully truthfully, to brutally honest in
-a way that can be quite hurtful.  And I'm capable of being hurtful in
-this way precisely because I have dissociated from my own feelings.
+was going into dissociative states, but did not understand just not
+what they were. For me particularly, I tend to dissociate in
+emotionally charged situations, particularly intense conversations.
+And when I do dissociate in these situations I go from being tactfully
+truthful to brutally honest in a way that can be quite hurtful.  And
+I'm capable of being hurtful in this way precisely because I have
+dissociated from my own feelings.
 
 
 ### Body Scan
