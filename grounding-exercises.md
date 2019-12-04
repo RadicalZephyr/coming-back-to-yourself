@@ -31,17 +31,20 @@ prepared. And also, take it slow.
 ### What's the Difference
 
 First you need to learn to identify when you are dissociated and what
-it feels like to _not_ be dissociated.  Dissociation often manifests
-as a feeling of floating above or outside one's body rather than
-inhabiting it, or a feeling of floatiness, or even mild dizziness. I
-also often notice that I cannot easily access the physical sensations
-that are happening in my body while I'm dissociated.
+it feels like to _not_ be dissociated.  Dissociation can manifest as a
+feeling of floating above or outside one's body rather than inhabiting
+it, or a feeling of floatiness, or even mild dizziness. However,
+everyone is a bit different, and you may have a different experience
+of learning to recognize _your_ dissociation. Personally, I most
+readily notice my dissociation by checking on the physical sensations
+in my body, and noticing the _lack_ of sensations that I know I should
+be feeling, like sitting on a chair for instance.
 
 Learning to recognize _when_ you are dissociated is probably going to
 be more challenging without someone to interact with about it, because
 the very nature of being in a dissociated state means you are unlikely
 to notice it.  To counteract this, it's useful to try and develop a
-habit of periodically throughout the day checking in with yourself and
+habit of checking in with yourself periodically throughout the day and
 asking "How am I feeling right now? Do I feel dissociated?" Then check
 for the specific physical sensations (or lack thereof) that you will
 begin to associate with being dissociated.
