@@ -89,6 +89,13 @@ curiosity, and a process of discovery.
 
 ## Maintenance
 
+Once you start to notice the dissociation happening in real time, you
+can start using these maintenance techniques to bring yourself back
+right away.  Think of these techniques as First Aid for
+dissociation. Apply them immediately on noticing any dissociation
+symptoms. Or even pre-emptively! These exercises can also be good for
+simply calming anxiety or taking the edge off of any kind of upset.
+
 
 ### Side-to-side Scan
 
@@ -103,36 +110,70 @@ dissociated, calmer, less anxious or whatever caused you do the scan
 in the first place.
 
 
-### Getting a Different Perspective
+### EMDR
 
-
-### Socializing
+EMDR at it's core is really just moving your eyes from side to side. I
+know this sounds absurd, but please just try it. It can be helpful to
+have concrete points to focus on while doing this, so just pick two
+objects in your field of vision that you can focus your eyes on
+without moving your head. Then, look at the one on the left for the
+space of a breath, then look at the one on the right for the space of
+a breath, repeat ad nauseam or until you feel better.
 
 
 ### Walking/Exercise
 
+It's trite advice at this point, but getting regular exercise is a
+great way to stay connected to your body. It's also good for your
+mental state.  I go on a walk every day to get me a) out of the house
+at least once, and b) at least a little bit of exercise.
+
+Walking can also be combined with the side-to-side scan or EMDR eye
+movements.  In fact, I find EMDR to be most helpful when I'm walking.
+
+
+### Getting a Different Perspective
+
+Talk to people about the things that are bothering you. If you only
+think about it in your own head it's easy to get stuck in loops, and
+those loops often have an emotional effect on us.  Simply talking to
+someone else can be helpful in breaking painful thought loops, which
+are my number one trigger for going into dissociative states.
+
+
+### Socializing
+
+Social contact is great, and with the internet it's easier to find
+something to do with people than ever before. Even if you don't know
+anyone, or you feel nervous or anxious about socializing, do it
+anyway.  Running away from those fears or anxieties only makes them
+worse.
+
 
 ### Meditation
 
-First off, meditation can be extremely helpful.  There are many, many
-meditation apps on various phone platforms, and there are free
-resources available online. If you don't have experience with
-meditation, guided meditations are a good place to start.  Here are a
-few resources I've used:
+Meditation can be extremely helpful.  There are many, many meditation
+apps on various phone platforms, and there are free resources
+available online. If you don't have experience with meditation, guided
+meditations are a good place to start.  Here are a few resources I've
+used and liked:
 
--
+- [UCLA Mindful Awareness Research Center](https://www.uclahealth.org/marc/mindful-meditations)
 - [The Waking Up app](https://wakingup.com/)
 - [10% Happier](https://www.tenpercent.com/)
 
 Also, there are many YouTube channels that have guided meditations and
-"auto-hypnosis" videos, but the quality tends to vary _widely_.
+"auto-hypnosis" videos, but the quality tends to vary _widely_. Look
+around, and find ones that you like and that work for you.
 
 The UCLA meditations are simple and basic, but helpful. I used those
 for a long time before moving on to other things. The Waking Up app
 and 10% Happier are both good apps for providing a progression of
 meditation lessons to actually teach you how to meditate and more of
 the full range of what you can use it for and the many different ways
-there are to practice it.  Also, most of the content in the Waking Up
+there are to practice it.
+
+Also, most of the content in the Waking Up
 app is behind a pay-wall, but if you truly cannot afford it you can
 get free access to the subscription for a year by writing an email to
 the developers of the app (info about how that works is
